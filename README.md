@@ -8,7 +8,7 @@ Currenly working on Chinese translation only, I'm reaching out to seek for more 
 
 ## Progress
 In Progress:
-- Chinese(CN)
+- [Chinese(CN)](MakeSomethingWonderful_CN.md)
 
 Planning:
 - German(DE)
