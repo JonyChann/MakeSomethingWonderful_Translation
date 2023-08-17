@@ -29,7 +29,7 @@
 
 <center>
 
-![](2.jpg "Steve骑车的照片")
+![](/img/2.jpg "Steve骑车的照片")
 Steve两岁的时候。他后来将计算机比喻为“思想的自行车”。
 
 </center>
