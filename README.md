@@ -10,4 +10,4 @@ Currenly working on Chinese translation only, I'm reaching out to seek for more 
 - Chinese(CN)
 
 Planning:
-- German
+- German(DE)
