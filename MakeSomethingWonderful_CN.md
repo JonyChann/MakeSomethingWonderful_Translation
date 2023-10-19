@@ -1457,3 +1457,14 @@ We are what we repeatedly do. Excellence, then, is not an act, but a habit. – 
 15. You’re Still My Woman, B.B. King
 16. For A Dancer, Jackson Browne
 17. New Morning, Bob Dylan
+18. Take Me to the River, Talking Heads, Stop Making Sense
+19. Angel From Montgomery, Bonnie Raitt
+20. Father and Son, Cat Stevens
+21. Minor Swing, Django Reinhardt
+22. Where to Now St. Peter, Elton John
+23. Colors/Dance, George Winston
+24. The Dark End of the Street, James Carr
+25. Come On, Let’s Go, Ritchie Valens
+26. Tupelo Honey, Van Morrison
+27. Judy Garland, Over the Rainbow, Live
+
