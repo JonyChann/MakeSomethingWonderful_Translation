@@ -2119,3 +2119,58 @@ NeXT和苹果公司在法庭外解决了他们关于NeXT推出和史蒂夫挖走
 
 1997年8月，比尔·盖茨出现在Macworld的巨大视频屏幕上，宣布微软致力于开发Mac版Microsoft Office。当观众开始嘲笑时，史蒂夫训斥他们：“我们必须放弃这种观念，即为了让苹果获胜，微软必须失败。”
 
+1997年9月，苹果公司推出了“Think Different”广告活动。一年后，该广告获得了杰出商业广告艾美奖。
+
+1998年3月——史蒂夫聘请蒂姆·库克担任苹果公司的首席运营官。
+
+1998年7月——伊芙·乔布斯出生。
+
+1998年8月，苹果公司推出了邦迪蓝色的iMac电脑。其中的“i”代表“互联网”，旨在面向那些希望像在澳大利亚邦迪海滩冲浪一样轻松地“冲浪网页”的消费者。
+
+1998年10月——苹果公司宣布自1995年以来首次实现盈利。
+
+2000年1月——在他的Macworld演讲的最后三分钟，史蒂夫意外地宣布他将从他的CEO头衔中删除“临时”一词，让观众大为惊讶。
+
+2000年3月——互联网乐观主义的浪潮破灭。纳斯达克在一个月内损失近1万亿美元，数百家初创公司在“.com 泡沫破裂”中失败。
+
+2000年11月——Pixar在加利福尼亚州埃默里维尔的新校园开放。史蒂夫一直参与总部的设计——从市政厅中庭到浴室——以至于人们称之为“史蒂夫的电影”。
+
+2001年5月——第一家苹果零售店在弗吉尼亚州泰森斯和加利福尼亚州格伦代尔开业。
+
+2001年3月，苹果公司发布了基于NeXT开发的NeXTStep软件的操作系统OS X。操作系统的更新版本仍然是许多苹果产品的核心。
+
+2001年10月，苹果公司推出了iPod。这是公司的一种新产品，不是一台计算机，而是一种便携式设备，可与计算机同步。苹果公司制造了一款音乐播放器，史蒂夫说：“我们热爱音乐，做自己喜欢的事情总是好的。”
+
+2003年4月，苹果公司开设了iTunes音乐商店，使得在线购买单曲变得容易。该商店仅适用于苹果电脑，但用户在第一周就下载了100万首歌曲。六个月后，在执行团队的敦促下，史蒂夫同意使商店与非苹果电脑兼容。
+
+2004年3月，Pixar的第五部电影《海底总动员》获得最佳动画长片奥斯卡奖。
+
+2004年7月——史蒂夫接受手术切除胰腺神经内分泌肿瘤。
+
+2006年1月，迪士尼以74亿美元的股票收购了皮克斯。史蒂夫成为迪士尼最大的股东，并加入董事会，而约翰·拉塞特和埃德·卡特米尔则担任迪士尼动画的领导。
+
+2007年1月——iPhone首次亮相。史蒂夫称其为“苹果历史上最具革命性和令人兴奋的产品”。
+
+2009年3月——史蒂夫从苹果休假，在田纳西州孟菲斯接受了一次肝脏移植手术。
+
+2010年1月——史蒂夫推出了iPad，称其为“一款神奇和革命性的设备”。
+
+2010年8月——《玩具总动员3》成为有史以来票房最高的动画电影。
+
+2011年8月——史蒂夫去世前六周，他辞去苹果公司的CEO职务，并建议由蒂姆·库克接替他。在他的辞职信中，史蒂夫写道：“我在苹果结交了一些我一生中最好的朋友，感谢你们多年来与我一起工作。”
+
+---
+
+## 致谢
+
+### 照片
+In order of appearance: Cover, photographer unknown, circa 1976; Steve on his tricycle, photographer unknown, 1957; Steve’s 1973 passport, photo by Ben Blackwell courtesy SJA; Buddhist poem postcard, courtesy Elizabeth Holmes; Steve and Apple I, photo by Joe Melena courtesy of Apple, 1976; Apple I briefcase, photos by Barbara Kinney courtesy SJA; Apple’s first fan letter, photo by Dean Phillips, 1976; Apple II prototype, photographer unknown, 1977; On the phone, photo by Bill Kelley, 1977; Posing with Apple II, photo by Ted Thai, 1981; Steve with his camera, photo by Andree Abecassis, 1981; Steve on his motorcycle, photo by Ted Thai, 1981; Conference & IBM sign, photos by Jean Pigozzi, 1983; Steve plays pinball, photo by Bill Atkinson, 1983; Steve asleep on a flight, photo by Jean Pigozzi,1984; Steve with Macintosh, photo by Norman Seeff, 1984; Steve peering into a store window, photo by Jean Pigozzi, 1984; Portrait of Steve, photo by Norman Seeff, 1984; Steve in his living room, photo by Steve Ringman/ San Francisco Chronicle/ Hearst Newspapers via Getty Images, 1985; Steve with newspaper, photo by Jeffrey Aaronson, 1984; Steve at a whiteboard, photo by Doug Menuez, 1986; 1986 memo to NeXT employees, photo by Ben Blackwell courtesy of Apple; Model of NeXT machine, photographer unknown, 1987; Playing ball in Menlo Park, photo by Doug Menuez, 1987; Note on Pixar letterhead, photo by Ben Blackwell, © Disney/Pixar; Steve in director’s chair, photo by Louie Psihoyos, © Disney/Pixar, 1995; Steve with Mickey and Minnie, photographer unknown, © Disney, 1995; Steve’s slide rule, photo by Barbara Kinney, courtesy SJA; Steve’s childhood home, photo by Diane Cook and Len Jenshel / Contour RA / via Getty Images, 1996; Speech at Palo Alto High School, photo by Ben Blackwell courtesy SJA; Pixar waltz ticket, © Pixar, 1996; Eight portraits of Steve, photos by Diana Walker/ SJA / Contour RA via Getty Images, 1997; Film reel-framed portrait, photo by Jeffery Newbury, 1997; Queen’s chair, photo by Brant Ward / San Francisco Chronicle / Polaris, 1998, used by permission of Disney / Pixar; Snow globe, photo by Ben Blackwell courtesy SJA, snow globe © Disney/Pixar; Steve smiling, photo by Christian Witkin, 2000; Steve in rehearsal, photo by Brent Schlender, 2001; Steve’s iPod, Jerry Lee Lewis record, Bob Dylan CDs and harmonicas, photos by Barbara Kinney courtesy of SJA; Home office, photos by Diana Walker / SJA / Contour RA via Getty Images, 2004; At Stanford lectern, photo by Linda A. Cicero / Stanford News Service, 2005; Whole Earth Catalog, photos by Ben Blackwell courtesy SJA; Steve holding iPhone, photo by Peer Grimm / Alamy, 2007; Steve with iPhone and color chart, photo by Joe Pugliese courtesy of Apple, 2007; Steve side profile, photo by Sean Gallup / Getty Images News via Getty Images, 2007; Apple Park mockups, photos courtesy Foster + Partners, 2010; Tech and liberal arts intersection, photo by Kimihiro Hoshino / AFP via Getty Images, 2011; At city council, AP / City of Cupertino, 2011; Steve on his iPhone, photo by Jean Pigozzi, 2010; Resignation letter, courtesy of Apple, 2011; Steve’s glasses, photo by Barbara Kinney courtesy SJA.
+
+### 演讲、电子邮件和采访
+In order of appearance: “There’s lots of ways to be, as a person,” speech at Apple Town Hall, 2007; Steve on his Childhood, courtesy Smithsonian Institution’s National Museum of American History, 1995; Interviews by David Sheff, 1984, courtesy SJA; “A lot of people put a lot of love into these products,” courtesy Smithsonian Institution’s National Museum of American History, 1995; Steve on Launching Apple, interview by David Sheff, 1984, courtesy SJA; Fresh Air with Terry Gross interview reprinted with the permission of WHYY, Inc., 1996; “It’s a domesticated computer,” Talk of the Town: Digitizing, by Thomas Whiteside, reprinted courtesy Thomas Whiteside / The New Yorker © Condé Nast, 1977; “Computers and society are out on a first date,” speech at the International Design Conference in Aspen, 1983; On the Macintosh, interview by David Sheff, 1984, courtesy SJA; “Was George Orwell right about 1984?” speech at an Apple sales meeting, 1983; “Your aesthetics get better as you make mistakes,” interview by Michael Moritz, 1984, courtesy SJA; “I want to build things,” interview reprinted with permission of Newsweek, courtesy EnVeritas Group Inc., 1985; “You never achieve what you want without falling on your face a few times,” Fresh Air with Terry Gross interview reprinted with the permission of WHYY, Inc., 1996; Steve on Starting NeXT interview reprinted with permission of Newsweek, courtesy EnVeritas Group Inc., 1985; On Becoming Majority Shareholder in Pixar, interview produced by Joel Bloom, 1996, courtesy SJA; On Pixar’s Early Days, interview by Leslie Iwerks, courtesy The Walt Disney Company, 2003; Email to NeXT Employees, 1989, courtesy of Apple; “Character is built not in good times, but in bad times,” speech at Reed College, 1991; Emails to Andy Grove, 1995; Email to Pixar employees, 1996; “One of the things I always tried to coach myself on was not being afraid to fail,” Fresh Air with Terry Gross interview reprinted with the permission of WHYY, Inc., 1996; Email to NeXT Colleagues, 1996, courtesy of Apple; “What you follow with your heart,” speech at Palo Alto High School, 1996; “To put these stories into culture,” interview produced by Joel Bloom, 1996, courtesy SJA; Email to Pixar employees, 1996; “The worst thing that someone can do in an interview is agree with me,” from In the Company of Giants: Candid Conversations with the Visionaries of the Digital World, by Dr. Rama Dev Jager and Rafael Ortiz, reprinted courtesy McGraw Hill © 1997; Email to Pixar Employees, 1996; “Much of what I stumbled into,” from commencement address at Stanford University, 2005; Steve on returning to Apple, speech at Stanford University Graduate School of Business, 2003; Emails to Apple Employees and exchange with Avie Tevanian, 1997, courtesy of Apple; “We believe that people with passion can change the world for the better,” speech to Apple employees, 1997, courtesy of Apple; Emails to Pixar’s Leadership, 1997; Email to Apple Employees, 1998, courtesy of Apple; “Apple is coming back in a very big way,” speech at Macworld in New York City, 1998; Email to Pixar Employees, 1998; Emails to Apple Employees and from Steve to himself, 1998-2000, courtesy of Apple; “Hopefully we captured a bit of Pixar’s soul,” speech to Pixar Employees at opening of Pixar’s headquarters in Emeryville, California, 2000; “Wouldn’t it be great if,” introduction to Apple Store, 2001; Emails to Apple Employees and from Steve to Himself, 2001-2003, courtesy of Apple; “I think I got lucky,” interview with Leslie Berlin, 2003, courtesy SJA; “You never know what is around the next corner,” speech at Stanford’s Graduate School of Business, 2003; Drafting the Stanford Commencement Address emails, 2005, courtesy of Apple; “Stay hungry. Stay foolish,” Commencement Address at Stanford University, 2005; Email exchange, 2005, courtesy of Apple; “We thought we could make a contribution,” speech to Apple employees, 2007; “Every once in a while a revolutionary product comes along,” speech at Macworld, 2007; Interview with Kara Swisher and Walt Mossberg, reprinted with permission of the Wall Street Journal, Copyright © 2007 Dow Jones & Company, Inc. All Rights Reserved Worldwide; Email, 2007, courtesy of Apple; “Five months ago, I had a liver transplant,” speech at Apple music and media event, 2009; Steve on the iPad, speech at Apple Town Hall, 2010; “One simple question,” speech at the Lucile Packard Children’s Hospital, 2010; Emails to Apple Employees and from Steve to himself, 2010, courtesy of Apple; “One more thing,” interview with Silicon Valley Historical Association, 1994.
+Information on Apple’s trademarks is available at www.apple.com. Apple emails courtesy of Apple.
+Other company and product names may be trademarks of their respective owners.
+
+---
+
+Copyright © 2023 Steve Jobs Archive. All rights reserved.
