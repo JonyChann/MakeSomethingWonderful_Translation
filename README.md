@@ -10,7 +10,7 @@ Due to Github markdown renderer, "\<center>" tag won't be shown here, but they'r
 
 ## Progress
 In Progress:
-- [Chinese(CN)](MakeSomethingWonderful_CN.md)
+- [Chinese(CN)](https://github.com/JonyChann/MakeSomethingWonderful_Translation/releases/tag/CN)
 
 Planning:
 - German(DE)
