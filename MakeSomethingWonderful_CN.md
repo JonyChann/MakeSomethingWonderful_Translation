@@ -138,6 +138,26 @@ Macintosh 还是史蒂夫第一次领导团队开发他认为改变了世界的�
 
 苹果的第一封粉丝来信，一张电脑屏幕的拍立得
 
+---
+
+This is a photographic record of a statement in English
+The undersigned had previously composed in 'basic' computer language for the Apple I, an exceptionally nice computer designed by Stephen Wozniak in association with Steven Jobs, the brains behind the Apple computer company, Palo Alto, California.
+Let us hear it for them!!!
+--A satisfied owner
+D.W.Phillips
+Long Bench, CA
+90805
+
+这是一份英文声明的记录照
+署名者过去曾经参与过 Apple I 电脑上“ Basic ”语言的编写，Apple I 是一台非常棒的电脑，由史蒂芬·沃兹尼亚克和史蒂夫·乔布斯联合设计， 加州帕洛奥托苹果电脑公司背后的智囊。
+让我们为他们欢呼！
+--一位满意的用户
+D.W.菲利普斯
+加州长滩市
+90805
+
+---
+
 ![](img/12.webp)
 
 1977年，史蒂夫在展示 Apple II 的原型机
